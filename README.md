@@ -1,5 +1,5 @@
 # 最新拿走不谢最新永久91y、7277tv这个网站是真的吗
-### <a href="https://https://github.com/wupbh/DFRTY/issues/1">👉👉👉♥♥点此进入♥观看入口👈👉👉</a>
+### <a href="https://github.com/wupbh/DFRTY/issues/1">👉👉👉♥♥点此进入♥观看入口👈👉👉</a>
    
 
 
